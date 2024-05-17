@@ -104,7 +104,7 @@ Selon moi, et mon expérience, voici trois éléments indispensables afin d'êtr
  2. La communication : pas de malentendus -communication positive et négative + remise en question
  3. L'extra mile : la volonté de faire plus que ce que l'on attend de nous, avec rigueur. On recherche l'excellence, mais en prenant du plaisir à ce qu'on fait.
    
-   
+
 
 ### Et pour terminer, un Gif de motivatiton
 
